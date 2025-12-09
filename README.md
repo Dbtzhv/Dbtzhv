@@ -7,7 +7,7 @@
 - 🏢 I am currently working as a **Python Software Engineer**
 - 🎓 I Study for Software Engineering at Almaty Synergy University
 - 🏡 I Live in **Kazakhstan🇰🇿**
-- 🧪 **2+ years** of Experience
+- 🧪 **4+ years** of Experience
 
 <br>
 
